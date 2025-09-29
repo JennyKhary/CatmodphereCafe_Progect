@@ -1,0 +1,1 @@
+Посилання на проект Project_CatmosphereCafe_Design у Figma з макетами гравічного інтеріейсу: https://www.figma.com/design/fqnZV0JBlISbCpzuNbaLDw/Project_CatmosphereCafe_Design?node-id=3083-892&t=QW9v9WsSUWvhX7IF-1
